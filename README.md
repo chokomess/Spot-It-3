@@ -1,4 +1,4 @@
-#Spot it 3: Find the Difference - toddlers & kids
+Spot it 3: Find the Difference - toddlers & kids
 Privacy Policy of Spot it 3: Find the Difference - toddlers & kids
 
 Privacy Policy
